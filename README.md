@@ -5,9 +5,3 @@ sdfasdfsadlfkjsaldfjl;asdfjl
 
 
 gitskills
-
-
-
-
-
-doudou
